@@ -1,0 +1,1 @@
+# Khalifeans are the original name of California named after queen khalifa of Atlantis.We are a indiginous people to the Americas and i would like to open a topic about who they are and were they are today..we have a farm and ranch business located in east texas.We are trying to add more people to talk about improving and building the business and help others while doing so..
